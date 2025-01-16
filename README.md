@@ -18,7 +18,7 @@
 
 三.安装指南
 
-  1.应该都会吧，不多说了
+  1.https://www.bilibili.com/video/BV1QWcXecEya/?spm_id_from=333.1387.upload.video_card.click
 
 四.联系方式
 
